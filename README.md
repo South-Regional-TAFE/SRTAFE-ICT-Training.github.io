@@ -1,1 +1,0 @@
-# SRTAFE-ICT-Training.github.io
